@@ -1,1 +1,0 @@
-# shadymathers.github.io
